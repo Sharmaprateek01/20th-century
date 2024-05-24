@@ -1,2 +1,2 @@
 # 20th-century
-20th century events!
+Key events of the 20th century!
